@@ -1,1 +1,1 @@
-`rookie#1` holeymoley how are we gonna win ts chase
+`rookie#1` i want to bes a kittey 
